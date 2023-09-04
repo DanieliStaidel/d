@@ -1,1 +1,1 @@
-# d
+Bem vindos ao meu perfil, meu nome é Danieli, moro em um fim de mundo chamado Cavaco, não é considerado cidade é apenas um  distrito, não tem nem uma sorveteria pra tomae açai POXAA... EU SOU ALÉRGICA A MORANGO, MAS TO NEM AI!!!
